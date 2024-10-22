@@ -1,3 +1,3 @@
-jlm un pb
-rendez les jetons de quentin
-un stage a bilbao, j'y pense
+Jlm un pb.
+Rendez les jetons de quentin !
+Un stage a bilbao, j'y pense...
